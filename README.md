@@ -11,7 +11,7 @@
 
 
 
-✮⋆˙ | Interact With Caution: I am a very impatient person with slight anger issues . ⋆˚꩜｡
+✮⋆˙ | [ Interact With Caution ]: I am a very impatient person with slight anger issues . ⋆˚꩜｡
 
 
 ✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me ! I love cuddles btw :3 ⋆˚꩜｡
@@ -25,6 +25,10 @@
 ✮⋆˙ | I really REALLY love dinosaurs ! i loved them ever since i was young . Jurassic Park / World fans wya... ⋆˚꩜｡
 
 ⋆˚꩜｡ | I do digital art ! but i never have any confidence to post any sadly qwq .  ⋆˚꩜｡
+
+[ !! README IS STILL A WIP !! ] i will improve it when i get more time on my socials !
+
+I probably wont be active a lot during school days .
 
 <!--
 **sorrowfulpredict/sorrowfulpredict** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
