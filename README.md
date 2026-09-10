@@ -1,5 +1,4 @@
-
-<img width="165" height="165" alt="1x1x1x1-forsaken" src="https://github.com/user-attachments/assets/361ee0a0-7e95-4ac3-a73b-f7c6f4327b68" />    <img width="498" height="498" alt="1x1x1x1-betrayed-1x1x1x1" src="https://github.com/user-attachments/assets/c165a77d-7bf9-463c-b570-32df49245b3d" />  <img width="300" height="300" alt="stiming-1x1x1x1" src="https://github.com/user-attachments/assets/b0cb36a2-dcbc-4d2f-9631-868163bfcc1f" />
+ <img width="300" height="300" alt="stiming-1x1x1x1" src="https://github.com/user-attachments/assets/b0cb36a2-dcbc-4d2f-9631-868163bfcc1f" />
 
 
 
