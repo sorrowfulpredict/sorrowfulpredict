@@ -9,14 +9,14 @@
 
 
 
-.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ @Gatita-here ♡ ! i love her very much she brings me joy in so many ways . ♡♡LOVE YOU MY LOVEE♡♡ ⋆˚｡
+.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ @Gatita-here♡ ! i love her very much she brings me joy in so many ways . ♡♡LOVE YOU MY LOVEE♡♡ ⋆˚｡
 
 
 
 
 
 
-✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others :c . I also sometimes tend to be in a very bad mood . ⋆˚꩜｡
+✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others :c .I also sometimes tend to be in a very bad mood . ⋆˚꩜｡
 
 
 ✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me ! I love cuddles btw :3 ⋆˚꩜｡
