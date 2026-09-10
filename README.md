@@ -9,7 +9,7 @@
 
 
 
-.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ @Gatita-here ♡ ! i love her very much she brings me joy in so many ways . ♡♡LOVE YOU MY LOVEE♡♡ ⋆˚｡
+.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ ! i love her very much she brings me joy in so many ways . im so glad i met her . ♡ LOVE YOU MY LOVEE ♡ ⋆˚｡
 
 
 
