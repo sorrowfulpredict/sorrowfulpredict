@@ -9,19 +9,19 @@
 
 
 
-.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ ! i love her very much she brings me joy in so many ways . im so glad i met her . ♡ LOVE YOU MY LOVEE ♡ ⋆˚｡
+.𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ ! i love her very much she brings me joy in so many ways . im so glad i met her . ♡ ⋆˚｡
 
 
 
 
 
 
-✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others :c .I also sometimes tend to be in a very bad mood . ⋆˚꩜｡
+✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others :c . I also sometimes tend to be in a bad mood but this is not all the time . ⋆˚꩜｡
 
 
-✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me ! I love cuddles btw :3 ⋆˚꩜｡
+✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me ! ⋆˚꩜｡
 
-✮⋆˙ | Filipino Canadian ! I'm more fluent in English than my own nationality qwq ⋆˚꩜｡
+✮⋆˙ | Filipino Canadian ! I'm more fluent in English than my own nationality . ⋆˚꩜｡
 
 
 
@@ -34,6 +34,8 @@
 ⋆˚꩜｡ | I do digital art ! but i never have any confidence to post any sadly qwq . someday maybe i might . ⋆˚꩜｡
 
 [ !! README IS STILL A WIP !! ] i will improve it maybe .
+
+might possibly make a strawpage .
 
 I probably wont be active a lot during school days .
 
