@@ -3,9 +3,9 @@
 
 
 
-.𖦹 ݁˖ | Hello! I go by Sleepy or 1x . My github is only used for PonyTown . 1x1x1x1 fictionkin! . ⋆˚꩜｡
+.𖦹 ݁˖ | Hello! I go by Sleepy or 1x . My github is only used for PonyTown . 1x1x1x1 & Skittles fictionkin . ⋆˚꩜｡
 
-. ݁˖ | Pleasee please Do Not Copy any of my skins or inspo ! . ⋆˚꩜｡
+✮⋆˙| Please Do Not Copy any of my skins or inspo . . ⋆˚꩜｡
 
 
 
@@ -16,10 +16,10 @@
 
 
 
-✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others :c . I also sometimes tend to be in a bad mood but this is not all the time . ⋆˚꩜｡
+✮⋆˙ | [ Interact With Caution ]: I can get pretty obnoxious and some things i say may offend others . I also sometimes tend to be in a bad mood but this is not all the time . ⋆˚꩜｡
 
 
-✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me ! ⋆˚꩜｡
+✮⋆˙ | I usually do not interact first ! But please don't be afraid to c+h or whisp to me . ⋆˚꩜｡
 
 ✮⋆˙ | Filipino Canadian ! I'm more fluent in English than my own nationality . ⋆˚꩜｡
 
@@ -27,7 +27,7 @@
 
 
 
-♡ I love my Netherland Dwarf Rabbit ♡
+
 
 ✮⋆˙ | I really REALLY love dinosaurs ! i loved them ever since i was young . Jurassic Park / World fans wya... ⋆˚꩜｡
 
