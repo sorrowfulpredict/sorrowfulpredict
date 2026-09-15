@@ -3,7 +3,7 @@
 
 
 
-.𖦹 ݁˖ | Hello! I go by Sleepy or 1x . My github is only used for PonyTown . 1x1x1x1 & Skittles fictionkin . ⋆˚꩜｡
+.𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 & Skittles fictionkin . ⋆˚꩜｡
 
 ✮⋆˙| Please Do Not Copy any of my skins or inspo . . ⋆˚꩜｡
 
