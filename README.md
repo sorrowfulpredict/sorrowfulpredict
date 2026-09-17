@@ -1,9 +1,10 @@
- <img width="300" height="300" alt="stiming-1x1x1x1" src="https://github.com/user-attachments/assets/b0cb36a2-dcbc-4d2f-9631-868163bfcc1f" />
+<img width="735" height="525" alt="fab53ff68b4fec5068720eb20dbf0450" src="https://github.com/user-attachments/assets/5fd6cbc0-26f7-4613-8c27-dd26d591c733" />
 
 
 
 
-.𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 & Skittles fictionkin . ⋆˚꩜｡
+
+.𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 fictionkin . ⋆˚꩜｡
 
 ✮⋆˙| Please Do Not Copy any of my skins or inspo . . ⋆˚꩜｡
 
