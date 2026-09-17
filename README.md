@@ -40,14 +40,6 @@ might possibly make a strawpage .
 
 I probably wont be active a lot during school days .
 
-<img width="236" height="236" alt="e0bc8cededed57b35f74ab35804edab5" src="https://github.com/user-attachments/assets/7cff491b-0016-4c41-bf2a-eedf7f4d4dce" />
-
-
-
-[ !! I don't ship this !! i found the gif cute ! ]
-
-<img width="220" height="220" alt="forsaken-forsaken-roblox" src="https://github.com/user-attachments/assets/a73dfaed-e901-4c5c-bbfe-07dac8d74c15" />
-
 
 
 <!--
