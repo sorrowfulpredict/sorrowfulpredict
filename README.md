@@ -6,6 +6,7 @@
 
 .𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 fictionkin . ⋆˚꩜｡
 
+
 ✮⋆˙| Please Do Not Copy any of my skins or inspo . . ⋆˚꩜｡
 
 
@@ -39,6 +40,8 @@
 might possibly make a strawpage .
 
 I probably wont be active a lot during school days .
+
+<img width="456" height="456" alt="85d50cdd02e9144837259d37e12b447f" src="https://github.com/user-attachments/assets/e055554e-4806-4a91-b819-2c98757dabf7" />
 
 
 
