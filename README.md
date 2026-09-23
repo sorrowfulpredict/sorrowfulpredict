@@ -14,7 +14,7 @@
 .𖦹 ݁˖ | I gift skins but only to close ones like my partner ♡ ! i love her very much she brings me joy in so many ways . im so glad i met her . ♡ ⋆˚｡
 
 
-✮⋆˙|Experimenting with different styes so my ponies may look different and not always similar! Also because i have a hard time sticking to one style . ⋆˚꩜｡
+✮⋆˙|I use different styles for my all ponies so they may look different and not always similar! Also because i have a hard time sticking to one style . ⋆˚꩜｡
 
 
 
