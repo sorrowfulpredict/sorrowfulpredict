@@ -4,7 +4,7 @@
 
 
 
-.𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 fictionkin . ⋆˚꩜｡
+.𖦹 ݁˖ | Hello! --> Sorrowful or Sleepy preferred names . My github is only used for PonyTown . 1x1x1x1 and Skittles fictionkin . ⋆˚꩜｡
 
 
 ✮⋆˙| Please Do Not Copy any of my skins or inspo . . ⋆˚꩜｡
@@ -28,10 +28,6 @@
 
 
 
-
-
-
-✮⋆˙ | I really REALLY love dinosaurs ! i loved them ever since i was young . Jurassic Park / World fans wya... ⋆˚꩜｡
 
 ⋆˚꩜｡ | I do digital art ! but i never have any confidence to post any sadly qwq . someday maybe i might . ⋆˚꩜｡
 
